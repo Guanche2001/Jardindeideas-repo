@@ -1,0 +1,3 @@
+La revolución verde ([[Gmo]], fertilizantes, etc) ha logrado casi erradicar el hambre en el mundo y que se necesite menos suelo de cultivo al ser más eficiente. El movimiento anti gmo y anti fertilizantes no suele darse cuenta de esto y se encarga de que mueran muchas personas al impedir que se cultive gmo en países donde hay pobreza mientras que la ciencia dice que son totalmente seguros. El hecho de que la agricultura de alta tecnología consuma petróleo, agua y use herbicidas es un precio razonable a pagar por la desaparición (casi) del hambre en el mundo. (Steven Pinker)
+
+---

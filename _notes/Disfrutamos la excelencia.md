@@ -1,0 +1,1 @@
+A las personas generalmente nos gusta sentir que somos buenos en algo. Es la búsqueda de la excelencia.
