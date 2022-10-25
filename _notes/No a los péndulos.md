@@ -16,6 +16,6 @@ Es continuar el círculo de ceguera, error, dolor, injusticia, etc...
 Es no querer perdonar.**
 
 ---
-[[MOC Consejos de Vida]]
+[[MOC Consejos de Vida]] [[Big pile/MOC Evolución y progreso]]
  
 

@@ -2,4 +2,5 @@ La capacidad de atención se ejercita igual que se ejercita un músculo. Cada ve
 Cuando meditamos, el ejercicio no consiste en mantenerse en más tiempo observando la respiración, consiste en volver a la respiración  una vez que nos hemos ido. Esa es la repetición.
 
 ---
-Meditación Espiritualidad
+Meditación Espiritualidad [[Big pile/MOC Consejos de Vida]]
+[[Big pile/MOC Evolución y progreso]]

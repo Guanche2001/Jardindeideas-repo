@@ -4,4 +4,4 @@ Los que piensan que todo está en cada uno, en el esfuerzo que hace, no han naci
 De todas formas, para mi es importante que las personas que necesitan ayuda reconozcan su situación, reconozcan sus errores si los ha habido, y no pongan sus responsabilidades en los otros. Que estén dispuestos a trabajar. To carry a load
 
 ---
-[[MOC Política]], 
+[[MOC Política]], [[Big pile/MOC Ética y moralidad]]

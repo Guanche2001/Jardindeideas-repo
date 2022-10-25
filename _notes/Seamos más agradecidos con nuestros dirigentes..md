@@ -2,4 +2,4 @@ Está claro que hay que ser crítico con la clase política y exigirle un trabaj
 Un poco más de cariño entre todos!!
 
 ---
-[[Dónde está la belleza o la maldad]]
+[[Dónde está la belleza o la maldad]] [[Big pile/MOC Ética y moralidad]]

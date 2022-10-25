@@ -2,3 +2,4 @@ Diferentes tipos de personalidad. La gente de izquierdas más estética, creativ
 
 ---
 [[MOC Política]]
+[[Big pile/MOC Evolución y progreso]]

@@ -1,4 +1,5 @@
 Puede ser esto?
+Exceso de civilización = totalitarismo?
 
 ---
-#reevaluar 
+#reevaluar [[Big pile/MOC Política]] [[moc]]

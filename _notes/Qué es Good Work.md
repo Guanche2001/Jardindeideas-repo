@@ -2,4 +2,4 @@ Good work: combina lo que se nos da bien con lo que nos gusta hacer y con lo que
 
 ---
 #citas 
-[[Focus, Daniel Goleman]]
+[[Focus, Daniel Goleman]] [[moc ]]

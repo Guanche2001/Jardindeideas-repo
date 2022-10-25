@@ -8,4 +8,4 @@ Que pasará con la emoción?
 Quizás evolucionaremos a una forma de inteligencia colectiva en la que todos somos un único ente?
 
 ---
-[[MOC Razón y emoción]]
+[[MOC Razón y emoción]] [[Big pile/MOC Evolución y progreso]]

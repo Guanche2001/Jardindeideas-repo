@@ -3,3 +3,4 @@ El debate sobre si se debe hablar sobre las diferencias entre diferentes razas e
 Igual, creo que como sociedad todavía estamos muy lejos  de poder hacerlo.
 
 ---
+[[Big pile/MOC Ética y moralidad]] 
